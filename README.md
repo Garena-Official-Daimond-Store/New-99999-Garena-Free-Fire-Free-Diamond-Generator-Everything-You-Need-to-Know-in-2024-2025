@@ -2,9 +2,9 @@
 
 New Garena Free Fire is definitely one of the most highly anticipated mobile games for players. In Garena Free Fire Diamonds and gold are highly demanded objects for the players. If you are also a Free Fire plater, then you may know that diamonds and gold are used for several purposes. Garena Free Fire officially returns to India.
 
-**[👉👉 CLICK HERE TO GET NOW FREE DAIMOND 👈👈](https://tinyurl.com/yzm2yxze)**
+# **[🔴► CLICK HERE TO GET FREE DAIMOND 💎](https://tinyurl.com/yzm2yxze)**
 
-**[👉👉 CLICK HERE TO GET NOW FREE DAIMOND 👈👈](https://tinyurl.com/yzm2yxze)**
+# **[🔴► CLICK HERE TO GET FREE DAIMOND 💎](https://tinyurl.com/yzm2yxze)**
 
 Inside the game, these things are definitely highly desired. As per currencies, diamonds are the most valuable items required to get most transactions engaging with premium in-game items or events. As a result, there is usually a huge demand for the diamond as per the currency in the community of the game.
 
